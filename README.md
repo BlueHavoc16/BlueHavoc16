@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BlueHavoc16
+- 👀 I’m interested in Gaming, Dance, and Art
+- 🌱 I’m currently learning how to design a game
+- 😄 Pronouns: She/Her
